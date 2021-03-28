@@ -9,5 +9,5 @@ E-mail: 1147892410@qq.com
 Sep 2017 – Jun 2021 &nbsp;&nbsp;**Bachelor**, School of Information Science and Technology, ShanghaiTech University
 
 ## Internship Experience
-Jul 2019 – May 2020 Research Center of Brain Science and Quasi brain, Shanghai Higher
+Jul 2019 – May 2020   Research Center of Brain Science and Quasi brain, Shanghai Higher
  
