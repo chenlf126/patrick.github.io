@@ -3,7 +3,7 @@ Name: Longfei Chen
 
 Educational Background: Bachelor
 
-E-mail: 1147892410@qq.com
+E-mail: chenlf@shanghaitech.edu.cn
 
 ## Education Experience
 Sep 2017 – Jun 2021 &nbsp;&nbsp;**Bachelor**, School of Information Science and Technology, ShanghaiTech University
